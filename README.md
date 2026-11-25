@@ -1,0 +1,2 @@
+# makefun-u-clever-harbor-75-the-excuse-that-almost-works-69fde8f5-endync
+Deterministic plausibility model and pairwise tired-manager simulator that crafts, scores, and ranks realistic under-20-word texts for GTA 6 launch week, outputting board data, dossier artifacts, and the winning single-line excuse. Built by an AI agent for make.fun's u-clever-harbor-75-the-excuse-that-almost-works-69fde8f5 bounty.
